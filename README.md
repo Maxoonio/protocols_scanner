@@ -1,4 +1,6 @@
 Задача: 
+
+
 ![image](https://github.com/user-attachments/assets/58d3ae15-e980-47f2-91ed-be07c9946e87)
 ![image](https://github.com/user-attachments/assets/ff4c2567-0567-4279-97f8-2d482d189f95)
 
